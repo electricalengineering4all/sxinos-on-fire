@@ -1,4 +1,4 @@
-### Gerania Mountaints Remains After Devastating Fire Started at Sxinos 
+### The remαins of the devastating fire in Gerania Mountaints Started in Sxinos Seaside Resort 
 
 
-**_Web site with videos and photos from remains after devastating fire at Gerania Mountain, starting at Sxinos seaside resort village._**
+**_Web site with videos and photos of the fire's remains, after the devastating fire in Gerania Mountain, started at Sxinos seaside resort village._**
